@@ -1,1 +1,1 @@
-BUAT LATIHAN aja
+BUAT LATIHAN aja banget
